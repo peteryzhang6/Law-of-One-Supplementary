@@ -17,6 +17,10 @@
 18.24: Then Yahweh’s communications did not help or did not create what Yahweh wished for them to create. Is this correct?
 - **Ra:** I am Ra. The results of this interaction were quite mixed. Where the entities were of a vibrational sum characteristic which embraced oneness, the manipulations of Yahweh were very useful. Wherein the entities of free will had chosen a less positively oriented configuration of sum total vibratory complex, those of the Orion group were able for the first time to make serious inroads upon the consciousness of the planetary complex.
 - 18.25: Specifically those who are strong, intelligent, etc., have a temptation to feel different from those who are less intelligent and less strong. This is a distorted perception of oneness with other-selves. It allowed the Orion group to form the concept of the holy war, as you may call it. This is a seriously distorted perception. There were many of these wars of a destructive nature.
+
+- 24.6
+- 24.9: "Yod heh Shin Vau Heh"
+
 # Yahweh's Purpose
 18.18: The purpose seven five oh oh oh (75,000) years ago, as you measure time, the changes subsequent to that time were of one purpose only: that to express in the mind/body complex those characteristics which would lead to further and more speedy development of the spiritual complex.
 

@@ -4,6 +4,8 @@
 - 14.10: The balancing pyramidal structures could be and were used for individual initiation. However, the use of these pyramids was also designed for the balancing of the planetary energy web. The other pyramids are not placed properly for Earth healing but for healing of mind/body/spirit complexes. It came to our attention that your density was distorted towards, what is called by our distortion/understanding of third density, a premature aging process. We were attempting to aid in giving the mind/body/spirit complexes of third density on your planetary sphere, more of a time/space continuum in one incarnation pattern in order to have a fuller opportunity to learn/teach the Laws or Ways of the primal distortion of the Law of One which is Love.
 
 Session 23
+
+27.2: Consider, if you will, the intelligent infinity present in the absorption of livingness and beingness as it becomes codified into intelligent energy, due to the thought impressions of those assisting the living stone into a new shape of beingness. The release and use of intelligent infinity for a brief period begins to absorb all the consecutive or interlocking dimensions, thus offering brief glimpses of those projecting to the material their thought. These beings thus beginning to materialize but not remaining visible. These beings were the thought-form or third-density-visible manifestation of our social memory complex as we offered contact from our intelligent infinity to the intelligent infinity of the stone.
 # Idea on reviving The Great Pyramid of Giza
 **To note: this is only an assumption or theory, which means mistakes is presented. Before taking this plan out of paper into reality, it is best to further realize the theory into its full completeness.**
 

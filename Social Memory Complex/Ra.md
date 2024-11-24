@@ -4,7 +4,7 @@
 13.3: We are messengers.
 - 13.4: An humble messenger of the Law of One
 
-14.19: I am sixth density with a strong seeking towards seventh density. The [[harvest]] for us will be in only approximately two and one-half million of your years and it is our desire to be ready for harvest as it approaches in our space/time continuum.
+14.19: I am sixth density with a strong seeking towards seventh density. The [[Harvest]] for us will be in only approximately two and one-half million of your years and it is our desire to be ready for harvest as it approaches in our space/time continuum.
 - 14.21-22: One of our cycles computes to seven five million (75,000,000) of your years.
 
 17.13: You speak with Ra. There is no separation. You would call it a social memory complex thus indicating many-ness. To our understanding, you are speaking to an individualized portion of consciousness.

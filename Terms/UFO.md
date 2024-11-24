@@ -2,6 +2,8 @@
 *Thoughts:* Like Ra once said, I would consider these information interesting to know but not of importance, for we are focusing on the healing power or positive polarity of the intelligent infinity. Overall, I sense a negative polarization of the use of [[Tesla Nikola]]'s and related technology.
 - 8.25: I spoke thusly. May I, at this time, reiterate that this type of information is very shallow and of no particular consequence compared to the study of the Law of One. However, we carefully watch these developments in hopes that your peoples are able to be harvested in peace.
 
+- 26.20, 21, 22
+
 8.2: Your peoples have, at this time/space present, the technological achievement, if you would call it that, of being able to create and fly the shape and type of craft known to you as unidentified flying objects. Unfortunately for the social memory complex vibratory rate of your peoples, these devices are not intended for the service of mankind, but for potential destructive use. This further muddles the vibratory nexus of your social memory complex, causing a situation whereby neither those oriented towards serving others nor those oriented towards serving self can gain the energy/power which opens the gates to intelligent infinity for the social memory complex. This in turn causes the harvest to be small.
 
 8.7: The craft are perhaps misnamed in some instances. It would be more appropriate to consider them as weaponry. The energy used is that of the field of electromagnetic energy which polarizes the Earth sphere. The weaponry is of two basic kinds: that which is called by your peoples psychotronic and that which is called by your peoples particle beam. The amount of destruction which is contained in this technology is considerable and the weapons have been used in many cases to alter weather patterns and to enhance the vibratory change which engulfs your planet at this time.
@@ -40,7 +42,6 @@ As you intend the question, in its shallower aspect, these people are those in y
 
 **Ra:** I am Ra. There was a mind/body/spirit complex known to your people by the vibratory sound complex, Nikola. This entity departed the illusion and the papers containing the necessary understandings were taken by mind/body/spirit complexes serving your security of national divisional complex. Thus your people became privy to the basic technology. In the case of those mind/body/spirit complexes which you call Russians, the technology was given from one of the Confederation in an attempt, approximately twenty-seven of your years ago, to share information and bring about peace among your peoples. The entities giving this information were in error, but we did many things at the end of this cycle in attempts to aid your harvest from which we learned the folly of certain types of aid. That is a contributing factor to our more cautious approach at this date, even as the need is power upon power greater, and your people’s call is greater and greater.
 - *thoughts:* 27 years ago is Jan 26, 1981 - 27 = 1954, 7 years after world war 2 ended and cold war began.
-
 # Types of Landings
 **8.13**
 

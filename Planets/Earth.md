@@ -42,3 +42,5 @@
 - 16.5: The window phenomenon is an other-self phenomenon from the Guardians. It operates from the dimensions beyond space/time in what you may call the area of intelligent energy. Like your cycles, such balancing, such rhythms are as a clock striking. In the case of the windows, no entities have the clock. Therefore, it seems random. It is not random in the dimension which produces this balance. That is why we stated the analogy was within certain limits.
 - 16.6: In effect, the balancing allows an equal amount of positive and negative influx, this balanced by the mind/body/spirit distortions of the social complex. Thus in your particular planetary sphere, less negative, as you would call it, information or stimulus is necessary than positive due to the somewhat negative orientation of your social complex distortion.
 - 16.7: In this way, total free will is balanced so that the individual may have an equal opportunity to choose service to others or service to self.
+# Nuclear
+26.21-30
