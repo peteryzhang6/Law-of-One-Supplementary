@@ -26,3 +26,6 @@ Furthermore, the Wanderer is, in its own mind/body/spirit complex, less distorte
 26.15-16:
 - Thomas Jefferson
 - Benjamin Franklin
+
+36.24: can you tell me what percentage of the Wanderers on Earth today have been successful in penetrating the memory block and becoming aware who they are?
+- **Ra:** I am Ra. We can approximate the percentage of those penetrating intelligently their status. This is between eight and one-half and nine and three-quarters percent. There is a larger percentile group of those who have a fairly well defined, shall we say, symptomology indicating to them that they are not of this, shall we say, “insanity.” This amounts to a bit over fifty percent of the remainder. Nearly one-third of the remainder are aware that something about them is different, so you see there are many gradations of awakening to the knowledge of being a Wanderer. We may add that it is to the middle and first of these groups that this information will, shall we say, make sense.

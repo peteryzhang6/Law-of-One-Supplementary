@@ -39,6 +39,8 @@
 - Entities do not become enspirited. They become aware of the intelligent energy within each portion, cell, or atom, as you may call it, of its beingness.
 - This awareness is that which is awareness of that already given. From the infinite come all densities. The self-awareness comes from within given the catalyst of certain experiences understanding, as we may call this particular energy, the upward spiraling of the cell or atom or consciousness. 
 - You may then see that there is an inevitable pull towards the, what you may call, eventual realization of self.
+
+38.8: Those second-density vegetation forms which graduated into third density upon this planet bearing the name of Dog were close to the tree as you know it.
 # 3rd Density
 ## Earth's 3D
 6.15: **Ra:** One major cycle is approximately twenty-five thousand (25,000) of your years. There are three cycles of this nature during which those who have progressed may be harvested. At the end of three major cycles, that is, approximately between seventy-five and seventy-six thousand (75–76,000) of your years, all are harvested regardless of their progress, for during that time the planet itself has moved through the useful part of that dimension and begins to cease being useful for the lower levels of vibration within that density.
