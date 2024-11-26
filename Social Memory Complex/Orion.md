@@ -7,6 +7,7 @@ Has [[UFO]] landings.
 
 - S24
 - S25
+- S31 - sexual energy impression
 # Purpose
 8.12: Their purpose is conquest, unlike those of the Confederation who wait for the calling. The so-called Orion group calls itself to conquest.
 

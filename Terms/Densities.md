@@ -9,6 +9,36 @@
 - [[#8th Density]]
 # 1st Density
 # 2nd Density
+## Entities
+9.14: The second density is the density of the higher plant life and animal life which exists without the upward drive towards the infinite. These second-density beings are of an octave of consciousness just as you find various orientations of consciousness among the conscious entities of your vibration.
+
+9.15: The two higher of the sub-vibrational levels of second-density beings had the configuration of the biped, as you mentioned. However, the erectile movement which you experience was not totally effected in these beings who were tending towards the leaning forward, barely leaving the quadrupedal position.
+- 9.16: They are a product of evolution as it is understood by the scientists. And they evolved from the original materials of the earth.
+- 9.17: They evolved from second density to third density; however Ra states that "although no guarantee can be made of the number of cycles it will take an entity to learn the lessons of [[Ouroboros|consciousness of self]] which are the prerequisite for transition to third density."
+
+9.18: There are no second-density consciousness complexes here on your sphere at this time. However, there are two races which use the second-density form. One is the entities of the planetary sphere you call [[Maldek]]. These entities are working their understanding complexes through a series of what you would call karmic restitutions. They dwell within your deeper underground passageways and are known to you as “Bigfoot.”  
+  
+9.18: The other race is that being offered a dwelling in this density by guardians who wish to give the mind/body/spirit complexes of those who are of this density at this time appropriately engineered physical vehicles, as you would call these chemical complexes, in the event that there is what you call nuclear war.
+- 9.19: These are beings which exist as instinctual second-density beings which are being held in reserve to form what you would call a gene pool in case these body complexes are needed. These body complexes are greatly able to withstand the rigors of radiation which the body complexes you now inhabit could not do.
+- 9.20: These body complexes of the second race dwell in uninhabited deep forest. There are many in various places over the surface of your planet.
+- 9.21: Q: Are they Bigfoot-type creatures? This is correct although we would not call these Bigfoot, as they are scarce and are very able to escape detection. The first race is less able to be aware of proximity of other mind/body/spirit complexes, but these beings are very able to escape due to their technological understandings before their incarnations here. These entities of the glowing eyes are those most familiar to your peoples.
+	- *glowing eyes* - animals like wolfs and such?
+- Bigfoot
+	- 9.22 There are three types of Bigfoot, if you will accept that vibratory sound complex used for three such different races of mind/body/spirit complexes. The first two we have described. The third is a thought-form.
+
+13.21: The second density strives towards the third density which is the density of self-consciousness or self-awareness. The striving takes place through the higher second-density forms who are invested by third-density beings with an identity to the extent that they become self-aware mind/body complexes, thus becoming mind/body/spirit complexes and entering third density, the first density of consciousness of spirit.
+- 14.1: Much as you would put on a vestment, so do your third-density beings invest or clothe some second-density beings with self-awareness. This is often done through the opportunity of what you call pets. It has also been done by various other means of investiture. These include many so-called religious practice complexes which personify and send love to various natural second-density beings in their group form.
+- 14.2: There was not this type of investment as spoken but the simple third-density investment which is the line of spiraling light calling distortion upward from density to density. The process takes longer when there is no investment made by incarnate third-density beings.
+
+19.2: There are three types of second-density entities which become, shall we say, enspirited. 
+- The first is the animal. This is the most predominant. 
+- The second is the vegetable, most especially that which you call sound vibration complex “tree.” These entities are capable of giving and receiving enough love to become individualized. 
+- The third category is mineral. Occasionally a certain location, place as you may call it, becomes energized to individuality through the love it receives and gives in relationship to a third-density entity which is in relationship to it. This is the least common transition.
+
+19.3: 
+- Entities do not become enspirited. They become aware of the intelligent energy within each portion, cell, or atom, as you may call it, of its beingness.
+- This awareness is that which is awareness of that already given. From the infinite come all densities. The self-awareness comes from within given the catalyst of certain experiences understanding, as we may call this particular energy, the upward spiraling of the cell or atom or consciousness. 
+- You may then see that there is an inevitable pull towards the, what you may call, eventual realization of self.
 # 3rd Density
 ## Earth's 3D
 6.15: **Ra:** One major cycle is approximately twenty-five thousand (25,000) of your years. There are three cycles of this nature during which those who have progressed may be harvested. At the end of three major cycles, that is, approximately between seventy-five and seventy-six thousand (75–76,000) of your years, all are harvested regardless of their progress, for during that time the planet itself has moved through the useful part of that dimension and begins to cease being useful for the lower levels of vibration within that density.
@@ -41,6 +71,9 @@ session 24.4 - Atlanteans; Egyptians; South America
 - You will find a sharp increase in the number of people, as you call mind/body/spirit complexes, whose vibrational potentials include the potential for fourth-vibrational distortions. Thus, there will seem to be, shall we say, a new breed. These are those incarnating for fourth-density work.
 - There will also be a sharp increase in the short run of negatively oriented or polarized mind/body/spirit complexes and social complexes, due to the polarizing conditions of the sharp delineation between fourth-density characteristics and third-density self-service orientation.
 - Those who remain in fourth density upon this plane will be of the so-called positive orientation. Many will come from elsewhere, for it would appear that with all of the best efforts of the Confederation, which includes those from your peoples’ inner planes, inner civilizations, and those from other dimensions, the harvest will still be much less than that which this planetary sphere is capable of comfortably supporting in service.
+
+29.20: Then when our planet Earth here gets fully into fourth density, will there be a greater gravity?
+- **Ra:** I am Ra. There will be a greater spiritual gravity thus causing a denser illusion.
 # 5th Density
 # 6th Density
 # 7th Density
